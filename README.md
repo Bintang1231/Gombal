@@ -1,0 +1,2 @@
+# Gombal
+Balikan yok kak
